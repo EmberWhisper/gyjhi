@@ -1,2 +1,0 @@
-# gyjhi
-klugihik
